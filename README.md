@@ -1,5 +1,5 @@
 # Project Team 11
-![image](https://github.com/user-attachments/assets/1b9493cc-4955-4e04-a2b2-b86500f5798c)
+![image](https://github.com/user-attachments/assets/8759920d-ec96-4be2-8a56-3d055aec2cdd)
 
 
 ## Team Members:
